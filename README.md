@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **rajpootrinki55@gmail.com**
 
-- 📄 Know about my experiences [1 Year+](1 Year+)
+- 📄 Know about my experiences [1 Year+]
 
 - ⚡ Fun fact **I am funny**
 
